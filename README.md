@@ -1,9 +1,9 @@
 ## Hello there!
 
 
- 🔭 I’m currently working on creative works
+ 🔭 I’m currently working on creative works.
  
- 🌱 I’m currently learning life
+ 🌱 I’m currently learning life.
  
  👯 I’m looking to collaborate on ...
  
